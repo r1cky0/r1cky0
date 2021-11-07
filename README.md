@@ -16,7 +16,7 @@ Thanks to my studies, I have developed solid skills in _software design and impl
 * riccardo.doveri.1998@gmail.com
 ---
 ### 👦🏻 About me:
-* 🧠 Constantly looking for new thing to learn
+* 🧠 Constantly looking for new things to learn
 * ♟ Love strategy games
 * 🐱‍👤 Martial arts
 * 🎵🎬 Music and Cinema
